@@ -1,6 +1,6 @@
 ## salve, seja bem vindo irmão, chama!!
 
-** Salve meu nome é Rafael estudo no colegio padre claudio morelli trabalho no escritorio do Banco do Brasil e tenho 14 anos e eatou no ensino medio e goto muito da minha familia e focado na academia
+** Salve meu nome é Rafael estudo no colegio padre claudio morelli trabalho no escritorio do Banco do Brasil e tenho 14 anos e estou no ensino medio e gosto muito da minha familia e focado na academia
 
  TOTALMENTE FOCADO NA ACADEMIA
  
