@@ -1,16 +1,17 @@
-## Hi there 👋
+## salve, seja bem vindo irmão, chama!!
 
-<!--
-**rafaelwarchelski/rafaelwarchelski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+** Salve meu nome é Rafael estudo no colegio padre claudio morelli trabalho no escritorio do Banco do Brasil e tenho 14 anos e eatou no ensino medio e goto muito da minha familia e focado na academia
 
-Here are some ideas to get you started:
+ TOTALMENTE FOCADO NA ACADEMIA
+ 
+🔭 Atualmente estou trabalhando no banco do brasil 💳💸
+- 🌱 Atualmente estou aprendendo no ensino medio 
+- 👯 Estou procurando colaborar em minha igreja
+- 🤔 Estou procurando ajuda com muai thay
+- 💬 Pergunte-me sobre finanças
+- 📫 Como entrar em contato comigo Rafael.warchelski@escola.pr.gov.br
+- ⚡ Curiosidade: sou muito esperto
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media1.tenor.com/m/1M3BCPzuSMsAAAAC/workout-dance.gif)
+![](https://media1.tenor.com/m/Wh9IZO_FV0IAAAAd/fail-gym-woma-wrong.gif)
+![](https://media1.tenor.com/m/iYyimncGZnUAAAAd/workout-gym.gif)
